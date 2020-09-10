@@ -8,3 +8,4 @@
 # Mitos sobre a nutrição
 ## Dieta saudável é um dos temas mais discutidos atualmente. Talvez seja por isso que vários mitos sobre alimentação acabam surgindo. Muitos deles são tão antigos e enraizados que fica difícil excluí-los.
 ![tenor.gif](https://media1.tenor.com/images/a85a62e481032f30e3cefd188dd148cd/tenor.gif?itemid=14786192)
+Muitos acreditam que durante uma dieta não podemos comer pizza, bolo, chocolate e usam a frase: "essas coisas engordam", mas isto não é verdade! A verdade é que TUDO "engorda" se você como demasiadamente, até mesmo alface ou frutas, dependendo da quantidade, vai acrescentar umas calorias a mais e resultará no aumento de peso.
