@@ -37,5 +37,5 @@ Para ajudá-los, deixarei abaixo uma lista com os 10 melhores alimentos para que
 
 10.Rídiculas
 
-É isto, de nada! :)
+Pela atenção, agradeço! Exercitem-se, não deixem seu corpo sem alimentos e nutrientes e bebam bastante água! :)
  
