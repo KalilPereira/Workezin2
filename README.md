@@ -17,14 +17,23 @@
 
 Para ajudá-los, deixarei abaixo uma lista com os 10 melhores alimentos para queimar gordura:
 1.Não
+
 2.Existem
+
 3.Alimentos
+
 4.Queimadores
+
 5.De
+
 6.Gordura
+
 7.Esqueçam
+
 8.Estas
+
 9.Litas
+
 10.Rídiculas
 
 É isto, de nada!
