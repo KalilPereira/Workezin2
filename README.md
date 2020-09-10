@@ -37,9 +37,9 @@ Para ajudá-los, deixarei abaixo uma lista com os 10 melhores alimentos para que
 
 10.Rídiculas
 
-Pela atenção, agradeço! Exercitem-se, não deixem seu corpo sem alimentos e nutrientes e bebam bastante água! :)
+Exercitem-se, não deixem seu corpo sem alimentos, e nutrientes, comam frutas e bebam bastante água! :)
  
-
+Pela atenção, agradeço!
 
 
 ps: Me diverti muito fingindo que sou um nutricionista professora kkkkk
