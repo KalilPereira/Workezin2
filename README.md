@@ -6,3 +6,4 @@
 # Nutricionista 
 ## Tem como função realizar um diagnóstico nutricional para elaborar uma dieta que atenda às necessidades do paciente. Para isso, investiga o estado de saúde do paciente, seus hábitos alimentares e seu estilo de vida. A análise de saúde é feita através de medições de peso, altura, quantidade de gordura e massa muscular.
 # Mitos sobre a nutrição
+## Dieta saudável é um dos temas mais discutidos atualmente. Talvez seja por isso que vários mitos sobre alimentação acabam surgindo. Muitos deles são tão antigos e enraizados que fica difícil excluí-los.
