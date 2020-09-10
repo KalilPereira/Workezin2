@@ -16,6 +16,7 @@
 - As pessoas também costumam comprar alimentos e achar de podem comê-los por livremente por lerem a palavra "DIET" em sua embalagem, mas isto é um grande erro, pois muitos consumidores não conhecem a definição do termo DIET, que apenas quer dizer que tal produto não contém açucar de cana como produto original. Portanto, diabéticos devem evitar alimentos assim, já que é prejudicial para esses. Em alguns produtos o termo é utilizado de forma maliciosa para enganar o consumidor, portanto, tomem cuidado!
 
 Para ajudá-los, deixarei abaixo uma lista com os 10 melhores alimentos para queimar gordura:
+
 1.Não
 
 2.Existem
@@ -36,5 +37,5 @@ Para ajudá-los, deixarei abaixo uma lista com os 10 melhores alimentos para que
 
 10.Rídiculas
 
-É isto, de nada!
+É isto, de nada! :)
  
